@@ -1,8 +1,8 @@
-# 小姐姐最新下载地址（2020年4月22日更新）
+# （2020年4月22日更新）
 ### [sprz.xyz](http://sprz.xyz)
 ### [a2yz.xyz](http://a2yz.xyz)
-### 主播版下载地址 [1eh0.xyz](http://1eh0.xyz)<br> （观众下载无法使用）
-备用观众版下载地址如下<br>
+### 主版下载地址 [1eh0.xyz](http://1eh0.xyz)<br> 
+下载地址如下<br>
 
 l9sc.xyz<br>
 lelm.xyz<br>
@@ -17,7 +17,7 @@ n1ze.xyz<br>
 u4z6.xyz<br>  
 x2sg.xyz<br>  
 
-备用主播版下载地址如下<br>
+备用主版下载地址如下<br>
 
 vb7a.xyz<br>
 zspk.xyz<br>
